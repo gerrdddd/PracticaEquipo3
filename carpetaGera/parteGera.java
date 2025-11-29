@@ -1,4 +1,5 @@
-este es la parte de gera
+este es la parte de Gerardo
+Ortiz Lopez
 
 
 
